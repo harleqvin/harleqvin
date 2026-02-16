@@ -2,7 +2,7 @@
   
   ![Profile views](https://komarev.com/ghpvc/?username=theaterofstatic) 
 
-  $${\color{#FF69B4}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ call \space me \space whatever \space you'd \space like. ╭─╯ }$$ 
+  $${\color{#FF69B4}╰─╮ call \space me \space whatever \space you'd \space like. ╭─╯ }$$ 
 
 $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
 
