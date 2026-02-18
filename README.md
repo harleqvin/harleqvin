@@ -1,10 +1,10 @@
 <div align="center"> 
 
-<img width="500" height="400" alt="image" src="https://64.media.tumblr.com/ae35f194d5e2fdd138e21823c9462fb1/df6b02b61ad85108-be/s1280x1920/588e5b175d2ae61a6498722e017e2e2d77971fe1.pnj" />
+<img width="1000" height="100" alt="image" src="https://64.media.tumblr.com/9676661075681f87b7bf01a2a7623e7b/2d6e39a734d0606f-f1/s1280x1920/18f0f642dc1840cf6907ca0551f2e6a10e49c08c.pnj" />
   
 ![I See You.](https://komarev.com/ghpvc/?username=theaterofstatic&label=i+see+you.&color=0f1a58&style=for-the-badge)
 
-<img width="420" height="270" alt="image" src="https://github.com/user-attachments/assets/d4e9c3e6-5081-42e7-b62d-02e220977618" />
+<img width="420" height="420" alt="image" src="https://64.media.tumblr.com/8cf4ecaa43d7f0e8a93e81d234d8db8a/0d9015f1e5690d01-31/s1280x1920/762c091901c9bd9af488f6246f20a2935e90b8a1.pnj" />
   
 $${\color{#16267a} ╰─╮ i \space heavily \space fictionkin \space both \space alastor \space and \space vox \space unfortunately, \space therefore \space please \space interact \space with \space caution. ╭─╯}$$ 
 
@@ -27,4 +27,4 @@ $${\color{#a0222b}I \space also \space do \space not \space really \space rolepl
 
 $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$
 
-<img width="500" height="400" alt="image" src="https://64.media.tumblr.com/ae35f194d5e2fdd138e21823c9462fb1/df6b02b61ad85108-be/s1280x1920/588e5b175d2ae61a6498722e017e2e2d77971fe1.pnj" />
+<img width="1000" height="100" alt="image" src="https://64.media.tumblr.com/9676661075681f87b7bf01a2a7623e7b/2d6e39a734d0606f-f1/s1280x1920/18f0f642dc1840cf6907ca0551f2e6a10e49c08c.pnj" />
