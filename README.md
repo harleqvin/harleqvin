@@ -1,10 +1,10 @@
 <div align="center"> 
+
+<img width="500" height="400" alt="image" src="https://64.media.tumblr.com/ae35f194d5e2fdd138e21823c9462fb1/df6b02b61ad85108-be/s1280x1920/588e5b175d2ae61a6498722e017e2e2d77971fe1.pnj" />
   
 ![I See You.](https://komarev.com/ghpvc/?username=theaterofstatic&label=i+see+you.+˙ᵕ˙&color=0f1a58&style=for-the-badge)
 
-<img width="673" height="390" alt="image" src="https://64.media.tumblr.com/ae35f194d5e2fdd138e21823c9462fb1/df6b02b61ad85108-be/s1280x1920/588e5b175d2ae61a6498722e017e2e2d77971fe1.pnj" />
-
-<img width="673" height="390" alt="image" src="https://github.com/user-attachments/assets/d4e9c3e6-5081-42e7-b62d-02e220977618" />
+<img width="380" height="230" alt="image" src="https://github.com/user-attachments/assets/d4e9c3e6-5081-42e7-b62d-02e220977618" />
   
 $${\color{#16267a} ╰─╮ i \space heavily \space fictionkin \space both \space alastor \space and \space vox \space unfortunately, \space therefore \space please \space interact \space with \space caution. ╭─╯}$$ 
 
@@ -32,14 +32,4 @@ $${\color{#a0222b}I \space also \space do \space not \space really \space rolepl
 
 $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$
 
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/8e457ae0-2925-4289-8f52-eb78a65a17a1" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/1071df87-37f7-48fa-b800-a89249e3cad4" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/61c2d700-bf30-4687-8a79-9850a41a4189" />
-<img width="174" height="174" alt="image" src="https://github.com/user-attachments/assets/9bf2ecbf-af2c-46b2-9077-e0c3dc600205" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f5e72601-2566-4a4a-bcd7-d44efaed7cb9" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f23a1e3b-7504-425b-8949-d5c6e26242a6" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/bc47f409-9e5a-40cf-ad5a-c802f63d1a7d" />
-
-
-
----
+<img width="500" height="400" alt="image" src="https://64.media.tumblr.com/ae35f194d5e2fdd138e21823c9462fb1/df6b02b61ad85108-be/s1280x1920/588e5b175d2ae61a6498722e017e2e2d77971fe1.pnj" />
