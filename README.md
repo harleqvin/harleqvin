@@ -15,7 +15,7 @@ $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉
 
 $${\color{#7a181c}Call \space me \space flo, \space vin, \space al \space or \space by \space the \space name \space of \space whichever \space character \space i'm \space currently \space cosplaying. \space Nicknames \space are \space welcome \space too.}$$
 
-$${\color{#a0222b}I \space can \space mostly \space be \space spotted \space sitting \space around \space as \space Alastor, \space Vox, \space Dazai, \space Tom \space or \space Hannibal \space throughout \space PonyTown.}$$
+$${\color{#a0222b}I \space can \space mostly \space be \space spotted \space sitting \space around \space as \space Alastor, \space Vox, \space Dazai \space or \space Hannibal \space throughout \space PonyTown.}$$
 
 $${\color{#be2d32}I \space have \space an \space atrocious \space sense \space of \space dark \space humor \space that \space most \space would \space see \space as \space offensive \space so \space beware \space of \space that \space when \space interacting \space with \space me.}$$ 
 
@@ -26,5 +26,11 @@ $${\color{#be2d32}I \space dont \space accept \space random \space friend \space
 $${\color{#a0222b}I \space also \space do \space not \space really \space roleplay \space with \space people, \space although \space i \space will \space reply \space in \space character \space occasionally.}$$
 
 $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$
+
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/29aaa4654fec655d658a5000470a6984/4e497783fe827e2a-f2/s100x200/73b7092a4ae1ecfe9060e9637e673244316b0875.pnj" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/f62f8b5d68951e3c4126275a40cc5eda/5d33f55d25cf1465-36/s100x200/af33a6b5b78467a3d2d40de7cb7a369deeb63663.gifv" />
+<img width="80" height="60" alt="image" src="https://64.media.tumblr.com/6677a86bdbbb3bbac606081ad2bb2c0f/048410466c8fee47-e2/s1280x1920/e0e505d0c6d32f9b060236b6e22d5e13d51b11ac.pnj" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/dae07da8e639563b617ab8acee88bdc8/e54c16cfff237577-b3/s100x200/6d21778f38ec841d342e46201cb20d17d4174165.pnj" />
+<img width="100" height="100" alt="image" src="https://64.media.tumblr.com/459dec4be1f7943ca862082768b20c8e/be9a15bb86b1fb25-d0/s250x400/33f824fd792c7e2b7492bdc81d0f7484c7314cf1.pnj" />
 
 <img width="1000" height="100" alt="image" src="https://64.media.tumblr.com/9676661075681f87b7bf01a2a7623e7b/2d6e39a734d0606f-f1/s1280x1920/18f0f642dc1840cf6907ca0551f2e6a10e49c08c.pnj" />
