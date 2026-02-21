@@ -4,7 +4,7 @@
   
 ![I See You.](https://komarev.com/ghpvc/?username=theaterofstatic&label=i+see+you.&color=0f1a58&style=for-the-badge)
 
-<img width="420" height="420" alt="image" src="https://64.media.tumblr.com/8cf4ecaa43d7f0e8a93e81d234d8db8a/0d9015f1e5690d01-31/s1280x1920/762c091901c9bd9af488f6246f20a2935e90b8a1.pnj" />
+<img width="400" height="400" alt="image" src="https://64.media.tumblr.com/8cf4ecaa43d7f0e8a93e81d234d8db8a/0d9015f1e5690d01-31/s1280x1920/762c091901c9bd9af488f6246f20a2935e90b8a1.pnj" />
   
 $${\color{#16267a} ╰─╮ i \space heavily \space fictionkin \space both \space alastor \space and \space vox \space unfortunately, \space therefore \space please \space interact \space with \space caution. ╭─╯}$$ 
 ⚠️ 
