@@ -1,6 +1,4 @@
 <div align="center"> 
-
-<img width="1000" height="100" alt="image" src="https://64.media.tumblr.com/9676661075681f87b7bf01a2a7623e7b/2d6e39a734d0606f-f1/s1280x1920/18f0f642dc1840cf6907ca0551f2e6a10e49c08c.pnj" />
   
 ![I See You.](https://komarev.com/ghpvc/?username=theaterofstatic&label=i+see+you.&color=0f1a58&style=for-the-badge)
 
@@ -26,5 +24,3 @@ $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉
 <img width="80" height="60" alt="image" src="https://64.media.tumblr.com/6677a86bdbbb3bbac606081ad2bb2c0f/048410466c8fee47-e2/s1280x1920/e0e505d0c6d32f9b060236b6e22d5e13d51b11ac.pnj" />
 <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/fa7c74c706c910865a44e8c5ebf5fb99/2b6e82c8ea22b922-ec/s100x200/4dcec57e3323d15d971880fcbf8f99d960785285.gifv" />
 <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/dacccb6d6d0143ed6afef83d1f9ad6b8/2b522e2e85828396-5e/s100x200/c9e69b4abb6370f357843cc09a6eb8b2e380427b.pnj" />
-
-<img width="1000" height="100" alt="image" src="https://64.media.tumblr.com/9676661075681f87b7bf01a2a7623e7b/2d6e39a734d0606f-f1/s1280x1920/18f0f642dc1840cf6907ca0551f2e6a10e49c08c.pnj" />
