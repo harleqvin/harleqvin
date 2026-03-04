@@ -5,8 +5,8 @@
 <div align="center">
 
   
-  ![cr:dxki-sketches](https://github.com/user-attachments/assets/aca062bc-3abd-4741-b258-1ffd96cc7611)
+  ![cr:prismaticvampire](https://64.media.tumblr.com/6d6e8fcd99c03d9e3644920bda19436b/4aa456260ef1fc13-8f/s1280x1920/15584aee660534ea5e0c8a0e1be61148370c3036.pnj)
   
-$${\color{#771111} NO \space copying \space or \space taking \space inspo \space off \space of \space my \space skins. }$$ 
+$${\color{#771111} Please \space do \space not \space copy \space or \space take \space inspo \space off \space of \space my \space skins. }$$ 
 
 [𝔯𝔢𝔫𝔱𝔯𝔶](https://rentry.co/massacremedia)
