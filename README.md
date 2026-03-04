@@ -11,4 +11,4 @@ $${\color{#d43a3f} Please \space do \space not \space copy, reference \space or 
 
 ↓↓↓
 
-[𝔯𝔢𝔫𝔱𝔯𝔶](https://rentry.co/massacremedia)
+[𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/massacremedia)
