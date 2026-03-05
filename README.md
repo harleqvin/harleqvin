@@ -11,4 +11,4 @@ $${\color{#d43a3f} Please \space do \space not \space copy, \space reference \sp
 
 ↓↓↓
 
-rentry under construction!!
+[𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/massacremedia)
