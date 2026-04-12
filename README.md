@@ -18,7 +18,7 @@
 
 
 <p align="center">
-                                               You may call me vincent/vin/vinny etc.
+                                               You may call me flo, vin or al etc.
 <p align="center">
                                                      Any pronouns are fine, i dont really care what gender im perceived as.
 
