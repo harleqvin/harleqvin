@@ -1,6 +1,6 @@
 <div align="center"> 
   
-![Just me.](https://komarev.com/ghpvc/?username=theaterofstatic&label=trust+me.+just+me.&color=090961&style=for-the-badge)
+## ![](https://komarev.com/ghpvc/?username=theaterofstatic&color=990000&style=plastic&label=profile+views)
 
 
 <p align="center">
