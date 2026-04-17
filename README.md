@@ -6,18 +6,17 @@
 <table>
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=30&duration=1500&pause=1000&color=7e8a91&center=true&multiline=true&width=600&height=75&lines=I'm+a+jester+through+and+through;Never+take+me+seriously!!" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Great+Vibes&size=30&duration=1500&pause=1000&color=8a8173&center=true&multiline=true&width=600&height=75&lines=I'm+a+jester+through+and+through,;never+take+me+seriously!!" alt="Typing SVG" /></a>
   
   <tr>
     <th>
       $\color{#8b0000}{\textsf{ABOUT ME!}}$ <br>
-      $\color{#1e3a8a}{\textsf{〞ㅤYou may call me Vinny/Vin/Vi + Shark or Jest!ㅤ〟}}$ <br>
+      $\color{#1e3a8a}{\textsf{〞ㅤYou may call me Vinny/Vin/ViVi + Shark or Jest!ㅤ〟}}$ <br>
       $\color{#4a148c}{\textsf{You may use Any Pronouns on me since i do not care what Gender im perceived as.}}$ <br>
       $\color{#8b0000}{\textsf{I am an ENTP, Introverted Extrovert}}$ <br>
       $\color{#1e3a8a}{\textsf{I am AroAce}}$ <br>
       $\color{#4a148c}{\textsf{⤥ CHECK OUT MY RENTRY BELOW!! ⤦}}$ <br>
 
-   ↓↓↓
 ## [𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/sharksjest)
 
 ![tumblr_1ba04d4cd67464d732642fdfd5ad7792_0454fbe3_250](https://64.media.tumblr.com/c4fe276b6ba1a4828796beb352c1bf73/da621ec21b7e52a7-22/s100x200/86a626d049d72c4a5b370dc36ce8d2c7fe7ae381.gifv)
