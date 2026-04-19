@@ -11,10 +11,10 @@
   <tr>
     <th>
       $\color{#8b0000}{\textsf{ABOUT ME!}}$ <br>
-      $\color{#1e3a8a}{\textsf{〞ㅤYou may call me Vinny/Vin/ViVi + Shark or Jest!ㅤ〟}}$ <br>
+      $\color{#1e3a8a}{\textsf{〞ㅤYou may call me Vinny/Vin/ViVi + Al or Jest!ㅤ〟}}$ <br>
       $\color{#4a148c}{\textsf{You may use Any Pronouns on me since i do not care what Gender im perceived as.}}$ <br>
       $\color{#8b0000}{\textsf{I am an ENTP, Introverted Extrovert}}$ <br>
-      $\color{#1e3a8a}{\textsf{I am AroAce}}$ <br>
+      $\color{#1e3a8a}{\textsf{I am AroAce !}}$ <br>
       $\color{#4a148c}{\textsf{⤥ CHECK OUT MY RENTRY BELOW!! ⤦}}$ <br>
 
 ## [𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/sharksjest)
