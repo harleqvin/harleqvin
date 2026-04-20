@@ -17,7 +17,7 @@
       $\color{#1e3a8a}{\textsf{I am AroAce !}}$ <br>
       $\color{#4a148c}{\textsf{⤥ CHECK OUT MY RENTRY BELOW!! ⤦}}$ <br>
 
-## [𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/deersjest)
+## [𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/sharksjest)
 
 ![tumblr_1ba04d4cd67464d732642fdfd5ad7792_0454fbe3_250](https://64.media.tumblr.com/c4fe276b6ba1a4828796beb352c1bf73/da621ec21b7e52a7-22/s100x200/86a626d049d72c4a5b370dc36ce8d2c7fe7ae381.gifv)
  ![tumblr_d1e660f88c960f8e773fe5766413941b_5c0bfbc2_100](https://64.media.tumblr.com/d606fa377e1aac62f63407c9e1166208/7f78cffc7fed9d15-00/s100x200/9536030f3d874aff32410c099882243b9b4eaa73.gifv)
